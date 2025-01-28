@@ -45,6 +45,6 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="https://img.freepik.com/free-vector/colorful-illustration-programmer-working_23-2148281409.jpg?ga=GA1.1.1245490191.1728718927&semt=ais_hybrid"  />
 
 ###
